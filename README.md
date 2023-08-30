@@ -5,4 +5,5 @@
 3.Fold the top sides to the centre line.
 4.Fold in half along the centre line.
 5.Fold the wings along the centre line.
-6.Give it a throw
+6. Use crayon to decorate the plane.
+7.Give it a throw
